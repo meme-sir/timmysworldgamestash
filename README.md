@@ -1,1 +1,1 @@
-use in whatever you want
+use it in whatever you want :)
